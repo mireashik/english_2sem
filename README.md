@@ -26,3 +26,15 @@
 ![image](https://github.com/mireashik/english_2sem/assets/123753819/15957e74-d5e6-4713-bf60-59a57b092f62)
 
 ![image](https://github.com/mireashik/english_2sem/assets/123753819/fa756909-9d4f-4ffc-a829-dc4cdf4ce959)
+
+![image](https://github.com/mireashik/english_2sem/assets/123753819/2a4e574e-3902-4ce1-b36a-c66516f994a7)
+
+![image](https://github.com/mireashik/english_2sem/assets/123753819/97c930ff-0ecb-46e6-9679-016a88c7792c)
+
+![image](https://github.com/mireashik/english_2sem/assets/123753819/0eee942d-02cb-4bdb-bfc2-e78642f99c4c)
+
+![image](https://github.com/mireashik/english_2sem/assets/123753819/b72e3fef-2360-4181-824e-077ed9e25885)
+
+![image](https://github.com/mireashik/english_2sem/assets/123753819/8dd377d2-3af1-4560-b6f0-6b9cf7e3a521)
+
+![image](https://github.com/mireashik/english_2sem/assets/123753819/17765175-5071-4a74-ba3c-a647f32444d1)
